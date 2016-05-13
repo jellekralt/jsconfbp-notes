@@ -1,5 +1,5 @@
 # The Formulartic Spectrum
-*Suz Hinton* [@noopkat](https://twitter.com/noopkat?lang=nl)
+*Suz Hinton* [@noopkat](https://twitter.com/noopkat)
 
 ---
 
